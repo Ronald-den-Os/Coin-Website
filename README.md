@@ -1,1 +1,1 @@
-Homepage for CLoudfinity.nl
+Homepage for Cloudfinity.nl
